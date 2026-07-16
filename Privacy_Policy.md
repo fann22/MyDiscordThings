@@ -59,6 +59,6 @@ This Privacy Policy may be updated from time to time. Changes take effect once p
 
 For privacy-related questions or requests, please contact:
 
-**Email:** fann.level.max@gmail.cok
+**Email:** fann.level.max@gmail.com
 
 *(Note: please double-check that this email address is correct — the domain appears to possibly be a typo.)*
